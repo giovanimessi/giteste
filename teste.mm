@@ -1,3 +1,0 @@
-fttttttttttttttttyft
-comentado comentado
-teste
